@@ -1,0 +1,1 @@
+# Metaphor-Project-competitor-analysis
